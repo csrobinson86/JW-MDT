@@ -22,4 +22,4 @@ The Modern Day History of Jehovah's Witnesses
 - 1918 The Society's officers and some principal associates are imprisoned; the witness work is killed
 - 1919 The Society's officers and associates are released from prison; the witness work is revived
 - 27/08/2012-~ Redesigned jw.org website launched
-- 01//10/2014 100 Years of Kingom Reign
+- 01/10/2014 100 Years of Kingom Reign
